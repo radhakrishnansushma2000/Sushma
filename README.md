@@ -1,9 +1,7 @@
 # 👩‍💻 Sushma Radhakrishnan
 
 📍 Mississauga, ON, Canada  
-📞 +1 (942) 380-4342  
-📧 radhakrishnansushma2000@gmail.com  
-🔗 [LinkedIn](https://www.linkedin.com/in/sushma-r-bb9947380)
+
 
 ---
 
